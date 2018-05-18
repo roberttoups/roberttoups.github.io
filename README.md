@@ -1,3 +1,3 @@
-# Robert M. Toups, Jr.
+# Robert M. Toups, Jr
 
-## This space reserved for future content
+## This page is intentionally left blank
